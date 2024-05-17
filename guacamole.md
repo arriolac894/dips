@@ -8,5 +8,5 @@ Instructions:
 - cut and mash avocados
 - chop the jalapeño
 - squeeze lime
-- add salt
+- add salt to taste
 - and mix well
